@@ -1,1 +1,0 @@
-# Diagnostic_ING3
